@@ -12,9 +12,13 @@ Soulmate Center (info)
 - трансформация + игры
 - игровая зонa
 - мастер-классы
+  
 Cell:    [+37379384540]()
+
 WhatsApp: [+37379384540]()
+
 Telegram: [soulmate_center](https://www.instagram.com/soulmate.center) 
+
 Instagram:  [soulmate.center](https://www.instagram.com/soulmate.center) 
 
 Address: Strada Alexandru Bernardazzi 97 Chișinău
