@@ -21,4 +21,4 @@ Telegram: [soulmate_center](https://www.instagram.com/soulmate.center)
 
 Instagram:  [soulmate.center](https://www.instagram.com/soulmate.center) 
 
-Address: Strada Alexandru Bernardazzi 97 Chișinău
+Address: [Strada Alexandru Bernardazzi 97, of.12, MD-2009, Chișinău, Moldova ](https://maps.app.goo.gl/CMtL2uCqm1mQPXNDA)   
